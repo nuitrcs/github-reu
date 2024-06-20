@@ -11,6 +11,11 @@ We the People of the United States, in Order to form a more perfect Union, estab
 =======
 Matthew Loves video games.
 
+
+Delaney loves cats and sharks.
+
+Roan likes Math
+
 Jared likes basketball.
 
 Help! I p00ped and need help cleaning it up! *wipe* *wipe*
