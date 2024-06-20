@@ -5,4 +5,4 @@ Scott Coughlin loves the Vikings.
 
 Matthew Loves video games.
 
-Delaney loves cats.
+Delaney loves cats and sharks.
