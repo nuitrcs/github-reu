@@ -9,6 +9,8 @@ We the People of the United States, in Order to form a more perfect Union, estab
 
 Matthew Loves video games.
 
+Helen loves rock music. Hello Goodbye :D
+
 Evan was here.
 
 Delaney loves cats and sharks.
@@ -28,3 +30,4 @@ Roan likes Math
 Aditya loves Tom Brady.
 
 Jeong likes rabbits. 
+
