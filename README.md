@@ -1,4 +1,4 @@
 # github-reu
 
-Scott Coughlin loves the Vikings.
+Leah English loves the Cubs
 
