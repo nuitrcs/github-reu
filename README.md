@@ -1,6 +1,6 @@
 # github-reu
 
-Scott Coughlin loves the Vikings and Wolves.
+Scott Coughlin loves the Vikings and always the Wolves.
 Roxana loves the Illini.
 Maria loves the Eagles.
 
