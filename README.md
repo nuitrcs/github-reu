@@ -2,4 +2,4 @@
 
 Welcome to the GitHub training!!
 
-David making people use vim. 
+David showing people how to use vim. 
