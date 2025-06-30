@@ -4,4 +4,4 @@ Welcome to the GitHub training!!
 
 Practicing using vim.
 
-trying again!!
+trying!
